@@ -14,10 +14,12 @@ Dovrebbero avere tutti parcheggio anche gratuito.
 ## Cosa vedere e cosa fare
 
 Orta san giulio:
-- giro in barca ? https://www.navigazioneorta.it/consorzio-servizio-pubblico.html  io direi il biglietto da 9€ che ci porta anche  ![image](https://user-images.githubusercontent.com/51110452/191938439-89cc2efe-59ba-4f86-af6f-c564daa1ef72.png)
+- Giro in barca ? https://www.navigazioneorta.it/consorzio-servizio-pubblico.html  io direi il biglietto da 9€ che ci porta anche  ![image](https://user-images.githubusercontent.com/51110452/191938439-89cc2efe-59ba-4f86-af6f-c564daa1ef72.png)
 
-- vedere la città: punti di interesse sulla mappa
+- Vedere la città: punti di interesse sulla mappa
 ![image](https://user-images.githubusercontent.com/51110452/191938636-20bb1a36-8598-45cf-b58f-0d4ec65eed3e.png)
+
+## Dopo Orta san giulio - Ripartenza il giorno 30 Ottobre
 
 Cascata della Qualba ? In caso di risalita lato ovest del lago verso il lago maggiore
 
