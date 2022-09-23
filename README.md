@@ -13,14 +13,31 @@ Dovrebbero avere tutti parcheggio anche gratuito.
 
 ## Cosa vedere e cosa fare
 
-Orta san giulio:
+### Orta san giulio
 - Giro in barca ? https://www.navigazioneorta.it/consorzio-servizio-pubblico.html  io direi il biglietto da 9€ che ci porta anche  ![image](https://user-images.githubusercontent.com/51110452/191938439-89cc2efe-59ba-4f86-af6f-c564daa1ef72.png)
 
 - Vedere la città: punti di interesse sulla mappa
 ![image](https://user-images.githubusercontent.com/51110452/191938636-20bb1a36-8598-45cf-b58f-0d4ec65eed3e.png)
 
-## Dopo Orta san giulio - Ripartenza il giorno 30 Ottobre
+## Dopo/prima Orta san giulio - Ripartenza il giorno 30 Ottobre
 
-Cascata della Qualba ? In caso di risalita lato ovest del lago verso il lago maggiore
+- Cascata della Qualba ? In caso di risalita lato ovest del lago verso il lago maggiore
 
-Lungolago di omegna ?
+- Lungolago di omegna ?
+
+### Lago maggiore
+
+- Giro per Verbania ?
+- Giardini Botanici di Villa Taranto, Via Vittorio Veneto, Verbania, VB
+- Il Museo del Paesaggio di Verbania
+- Cipresso del Cashmir ?
+
+## Dopo/prima lago maggiore - Ripartenza il giorno 31 
+
+- Visitare Stresa città ?
+- Lungolago di Stresa ? Più vicino a Verbania di Arona
+- Il Lungolago di Arona ?
+- La Collegiata della Natività di Arona ?
+- Palazzo Borromeo su isola bella o madre ?
+- Colosso di San Carlo Borromeo?
+
