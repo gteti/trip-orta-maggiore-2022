@@ -9,6 +9,9 @@ https://www.booking.com/hotel/it/terrazza-sul-lago-vacciago1.it.html?aid=304142&
 30-31 magari risaliamo e vediamo qualcosa dal lato ovest del lago maggiore e potremmo dormire a verbania:
 https://www.booking.com/hotel/it/al-centro.it.html?aid=304142&label=gen173nr-1DCAEoggI46AdIM1gEaHGIAQGYARS4ARfIAQzYAQPoAQGIAgGoAgO4As7_tZkGwAIB0gIkOTY0M2M0MjAtMjRkMC00ZjQzLTk4MDQtMGFmNDA2MWEzNDYx2AIE4AIB&sid=be80cc19705af37b6ccc8c8c311cefea&atlas_src=sr_iw_btn;checkin=2022-10-30;checkout=2022-10-31;dest_id=1430;dest_type=region;dist=0;group_adults=3;group_children=0;highlighted_blocks=31867601_265653665_2_1_0;no_rooms=2;room1=A;room2=A%2CA;sb_price_type=total;type=total;ucfs=1&
 
+Oppure
+https://www.booking.com/hotel/it/villa-della-quercia.it.html?aid=304142&label=gen173nr-1FCAEoggI46AdIM1gEaHGIAQGYARS4ARfIAQzYAQHoAQH4AQyIAgGoAgO4As7_tZkGwAIB0gIkOTY0M2M0MjAtMjRkMC00ZjQzLTk4MDQtMGFmNDA2MWEzNDYx2AIG4AIB&sid=cef5d88056098dea99029b34f81d5105&atlas_src=sr_iw_btn;checkin=2022-10-30;checkout=2022-10-31;dest_id=1430;dest_type=region;dist=0;group_adults=3;group_children=0;highlighted_blocks=184642901_114035703_2_1_0%2C184642902_114035703_1_1_0;nflt=hotelfacility%3D2;no_rooms=2;room1=A;room2=A%2CA;sb_price_type=total;type=total;ucfs=1&
+
 Dovrebbero avere tutti parcheggio anche gratuito.
 
 ## Cosa vedere e cosa fare
