@@ -19,6 +19,8 @@ Dovrebbero avere tutti parcheggio anche gratuito.
 - Vedere la città: punti di interesse sulla mappa
 ![image](https://user-images.githubusercontent.com/51110452/191938636-20bb1a36-8598-45cf-b58f-0d4ec65eed3e.png)
 
+- Sacro monte di orta
+
 ## Dopo/prima Orta san giulio - Ripartenza il giorno 30 Ottobre
 
 - Cascata della Qualba ? In caso di risalita lato ovest del lago verso il lago maggiore
