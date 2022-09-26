@@ -27,7 +27,7 @@ Dovrebbero avere tutti parcheggio anche gratuito.
 ## Dopo/prima Orta san giulio - Ripartenza il giorno 30 Ottobre
 
 - Cascata della Qualba ? In caso di risalita lato ovest del lago verso il lago maggiore
-
+- Cascata del Pescone (lato est)
 - Lungolago di omegna ?
 
 ### Lago maggiore
